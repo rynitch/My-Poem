@@ -1,12 +1,7 @@
 # My-Poem
 
-
-Colors fade, yet still they seem to glow,
-
-Flowers wilt, yet still their beauty shows,
-
-Seasons turn, but one truth I still know—
-
-Every world is brighter with you.
-
+Colors always remind me,
+There is light even in the dark,
+And sometimes, when all else fades,
+You are the one who carries the spark.
 
