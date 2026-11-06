@@ -1,1 +1,12 @@
 # My-Poem
+
+
+Colors fade, yet still they seem to glow,
+
+Flowers wilt, yet still their beauty shows,
+
+Seasons turn, but one truth I still know—
+
+Every world is brighter with you.
+
+
